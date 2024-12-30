@@ -1,3 +1,7 @@
+
+![LinkedIn Cover Pic](https://github.com/user-attachments/assets/64484eb1-8f3b-4862-ae56-8a944ac2abc9)
+
+
 <h1>Hi there! I'm NARESH KUMAR SARAVANAN </h1>
 <div align="justify">
 
